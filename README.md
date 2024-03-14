@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TobiManuel
 - 👀 I’m interested in Data Analytics and Visualisation
-- 🌱 I’m currently learning Data Analysis and Visuslisation
+- 🌱 I’m currently learning Data Analysis and Visualisation
 - 💞️ I’m looking to collaborate on Data Projects
 - 📫 How to reach me +234 903 033 5217 (Whatsapp)
 - 😄 Pronouns: He, him
